@@ -4,7 +4,7 @@ I am interested in creating user interfaces that will be in demand by people ✨
 
 Here you can see my little favorite projects.
 
-I am open to communication and will be glad to exchange experiences with those who are also interested in this.
+I am open to communication and will be glad to exchange experiences with those who are also interested in this  😉.
 
 My telegram: https://t.me/medvedew_dmitry
 
